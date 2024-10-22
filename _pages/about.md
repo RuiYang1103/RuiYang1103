@@ -11,7 +11,7 @@ I am a lecturer from [Shandong University of Science and Technology](https://fce
 
 My doctoral supervisor is Weiqun Liu from China University of Mining and Technology. Now, I am also a postdoctoral fellow of Professor Shaojie Chen in Shandong University of Science and Technology. 
 
-[Email](ruiyang9519@gmail.com)
+Email: ruiyang9519@gmail.com and rui_yang@sdust.edu.cn
 
 
 
